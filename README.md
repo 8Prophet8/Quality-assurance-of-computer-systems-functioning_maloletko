@@ -1,0 +1,1 @@
+# Quality-assurance-of-computer-systems-functioning_maloletko
